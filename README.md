@@ -1,6 +1,6 @@
 Team Globe
 
-Link To Project Files: 
+Link To Repo Project Files: 
 
 https://www.mediafire.com/file/xkisujj13k571jz/globalgamerchallenge_teamglobe.zip/file
 
